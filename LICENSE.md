@@ -1,4 +1,4 @@
-
+stealth Script for the strongest battlegrounds is the best the strongest battlegrounds Script, featuring one-hit kill and infinite resources. Safe
 
 
 
